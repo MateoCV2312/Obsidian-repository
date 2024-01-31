@@ -1,0 +1,1 @@
+==Definición: ==Serie de procesos interconectados que comienzan a nivel de la CTH con la autorrenovación, diferenciación y maduración, que conducen a la producción de componentes sanguíneos funcionales.
